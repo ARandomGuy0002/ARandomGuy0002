@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ARandomGuy0002
-- 👀 I’m interested in bitches
+- 👀 I’m interested in working code
 - 🌱 I’m currently learning wave management
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me - you cant
